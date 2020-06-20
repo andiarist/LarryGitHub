@@ -2,4 +2,4 @@
 
 Esta serie de libros cuenta la historia de un hacker excepcional.
 
-**Andrea G. Aristegui**
+**Andrea G. Aristegui**, Larry Plotter fan.
